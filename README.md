@@ -17,3 +17,6 @@ Song 05 - The Matrix of an Elamite Dynasty
 Song 06 - Matrix of Assyrian Empire
 
 Song 07 - The Matrix of Chaldean Dynasty
+
+All these ancient empires rose and fell like dust. Only Jesus Christ remains forever.
+All glory to the Lamb who was slain and who reigns!
